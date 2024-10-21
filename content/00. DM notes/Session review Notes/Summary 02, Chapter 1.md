@@ -25,3 +25,12 @@ We met Gerard, the bear baker. He is the Grizzley bear
 Met Marvin the mage. He runs a magic popup shop.
 
 eventually got on a ferry to the next nearest island
+
+## Session 5
+[[The Team]] Lands on the next island where they spot and talk to a mercenary band surveying the land. 
+
+They are then told a member of the [[Legion Aeternum]] is nearby.
+
+As they talk a large meteor scorches through the sky and crashes down somewhere north of them.
+
+They move on to help the Legionnaire and help him take down a manticore.
