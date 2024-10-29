@@ -34,3 +34,11 @@ They are then told a member of the [[Legion Aeternum]] is nearby.
 As they talk a large meteor scorches through the sky and crashes down somewhere north of them.
 
 They move on to help the Legionnaire and help him take down a manticore.
+
+## Session 6 10/21/24
+[[The Team]] had opened the vault discovering that it is an ancient library. Inside containing a treasure trove of information that could alter the way history and structure of the world is perceived and understood.
+
+> DM notes
+>This will be updated and relinked when the information is ready.
+
+There seems to be a foreign entity that is defending the premises.
